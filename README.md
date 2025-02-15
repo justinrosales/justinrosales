@@ -1,6 +1,6 @@
 ## Hey! I'm Justin 👋
 
-- ⚡ Aspiring software engineer
+- ⚡ Aspiring software developer
 - 🧗 During my free time I enjoy rock climbing and competing in esports
 
 <h3 align="left">Languages and Tools:</h3>
