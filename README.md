@@ -1,4 +1,4 @@
 ## Hey! I'm Justin 👋
 
-- 💎 Fan of Nujabes, ATLA, and fantasy novels. 
+- 💎 Nujabes, ATLA, and fantasy novel enthusiast.
 - ⚡ In my free time, I enjoy rock climbing and competing in esports.
