@@ -1,4 +1,3 @@
-## Hey! I'm Justin 👋
+## Hallo! 👋
 
-- 💎 Nujabes, ATLA, and fantasy novel enthusiast.
-- ⚡ In my free time, I enjoy rock climbing and competing in esports.
+I want to see the real sky
