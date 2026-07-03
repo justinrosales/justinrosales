@@ -1,3 +1,3 @@
 ## hello!
 
-[music is good for the soul](https://www.youtube.com/watch?v=8PsG3ycLx3o)
+[long live seba jun](https://www.youtube.com/watch?v=8PsG3ycLx3o)
